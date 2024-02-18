@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analysis
 - 🌱 I’m currently learning Data Analytics
 - 💞️ I’m looking to collaborate on Data analytics
-- 📫 How to reach me linkedIn
+- 📫 How to reach me on linkedIn
 - 😄 Pronouns: She
 - ⚡ Fun fact: Where there is a wish, there is a way
 
